@@ -21,4 +21,4 @@ some quotes:
 
 > "Goal: be desirable enough that I can get a girl in legal trouble and still have her be attracted to me"
 
-
+> you're not even that good at leetcode, how do you already have an offer for aug 2023 in july!
