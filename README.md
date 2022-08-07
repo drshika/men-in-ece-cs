@@ -1,4 +1,6 @@
 # men-in-ece-cs
+make an anon submission: forms.gle/UAbxPsD3iHoM2V6S9
+
 some quotes:
 
 > "you seem like more of a product girl than swe you know? like i've never seen you code" - some person in the acm office
