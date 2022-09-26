@@ -33,4 +33,6 @@ some quotes:
 
 > hey, you're a girl in cs right? do you like have time to go to parties? how do I get a girl's snap?
 
->saw the recent, if i = q/t, then does u = qt?
+> saw the recent, if i = q/t, then does u = qt?
+
+> the black student union is radicalizing the students into hating white people
