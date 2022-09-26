@@ -32,3 +32,5 @@ some quotes:
 > I tell girls I'm ece and they're like can I have ur number
 
 > hey, you're a girl in cs right? do you like have time to go to parties? how do I get a girl's snap?
+
+>saw the recent, if i = q/t, then does u = qt?
