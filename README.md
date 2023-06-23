@@ -29,10 +29,20 @@ some quotes:
 
 > I tell girls I'm ece and the next second I'm going to their home
 
-> I tell girls I'm ece and they're like can I have ur number
-
 > hey, you're a girl in cs right? do you like have time to go to parties? how do I get a girl's snap?
 
 > saw the recent, if i = q/t, then does u = qt?
 
 > the black student union is radicalizing the students into hating white people
+
+> you dont know how to debug
+
+> do YOU feel differently around me?
+
+> i should get disability accomodations to get a free keyboard and mouse
+
+> its easy to tell if someone is gay based on the pitch of their voice
+
+> *guy who makes more than me* wagegap check!
+
+> you only got your internship because you're a woman
