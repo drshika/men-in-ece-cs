@@ -46,3 +46,7 @@ some quotes:
 > *guy who makes more than me* wagegap check!
 
 > you only got your internship because you're a woman
+
+> you're not getting a return offer/j
+
+> i should make a men in computer science ERG to get free dinner too!
