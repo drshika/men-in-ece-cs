@@ -4,6 +4,8 @@ make an anon submission: forms.gle/UAbxPsD3iHoM2V6S9
 some quotes:
 
 > "you seem like more of a product girl than swe you know? like i've never seen you code" - some person in the acm office
+
+> you only got into UIUC CS because you're a woman - some hateful high school loser boy
     
 > "meet me in the acm backroom 😉" - a different guy in the acm office     
 
@@ -50,3 +52,11 @@ some quotes:
 > you're not getting a return offer/j
 
 > i should make a men in computer science ERG to get free dinner too!
+
+> you're a fraud. you don't deserve anything. you keep getting stuff because you're a girl.
+
+> you must’ve got this internship because you had a cute display picture
+
+> "Aren't you being overconfident" - Said the guy who was supposed to work with me but ditched the teamwork and then doubt my ability to finish (I finished and I also reported him))
+
+> (college apps szn): wait what, you're doing CS?? oh wow, i thought you would be doing business or something... do you actually know how to code... oh really, python? that's not a real language though so it doesn't count
